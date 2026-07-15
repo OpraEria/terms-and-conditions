@@ -1,5 +1,5 @@
 # TERMS AND CONDITIONS
-**Last updated 14 July, 2026
+**Last updated 14 July, 2026**
 
 ## AGREEMENT TO OUR LEGAL TERMS
 We are Gather AS ("**Company**," "**we**," "**us**," "**our**"), a company registered in Norway at Bjerkebakken 42C, Oslo, Oslo 0757. Our VAT number is 938088888.  
